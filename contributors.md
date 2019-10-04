@@ -6,4 +6,4 @@ Farhan Kapadia<br/>
 Harsh Kapadia <br/>
 Mohit S Punjabi <br/>
 DSC Vivekanand <br/>
-Jay Dulera<br/>
+Jay Dulera Vivekanand<br/>
